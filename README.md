@@ -1,0 +1,1 @@
+# Proiecte-KiCad_spo2
